@@ -1,2 +1,2 @@
 ### jiangyuzhen.github.io
-  大家好
+  https://jiangyuzhen.github.io/
